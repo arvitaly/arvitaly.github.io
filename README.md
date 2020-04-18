@@ -1,1 +1,0 @@
-# arvitaly.github.io
